@@ -65,13 +65,15 @@
                     <ul>
                         <li>
                             灰灰av最新地址
-                            <a href="https://hhav11.com" target="_blank">https://hhav11.com</a>
+                            <a href="https://hhav14.com" target="_blank">https://hhav14.com</a>
                         </li>
                         <li>
                              灰灰av备用地址
-                            <a href="https://hhav12.com" target="_blank">https://hhav12.com</a>
-                            <a href="https://hhav99.com" target="_blank">https://hhav99.com</a>
-			     <a href="https://hhav88.com" target="_blank">https://hhav88.com</a>
+                            <a href="https://hhav15.com" target="_blank">https://hhav15.com</a>
+                            <a href="https://hhav20.com" target="_blank">https://hhav20.com</a>
+			     <a href="https://hhav21.com" target="_blank">https://hhav21.com</a>
+			       <a href="https://hhav16.com" target="_blank">https://hhav16.com</a>
+			     <a href="https://hhav41.com" target="_blank">https://hhav41.com</a>
                         </li>
                         <li>
                              灰灰av海外永久地址
@@ -80,7 +82,7 @@
 
                     </ul>
                     <p>如果以上地址均无法打开，欢迎发送邮件告知： <br>
-                       hhav999@gmail.com<br>
+                       hhav88@gmail.com<br>
                         会自动回复最新地址！</p>
                 </div>
             </div>
