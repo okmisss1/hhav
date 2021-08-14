@@ -65,15 +65,15 @@
                     <ul>
                         <li>
                             灰灰av最新地址
-                            <a href="https://hhav18.com" target="_blank">https://hhav18.com</a>
+                            <a href="https://100maohh.com" target="_blank">https://100maohh.com</a>
                         </li>
                         <li>
                              灰灰av备用地址
-                            <a href="https://hhav62.com" target="_blank">https://hhav62.com</a>
-                            <a href="https://hhav65.com" target="_blank">https://hhav65.com</a>
-			     <a href="https://hhav63.com" target="_blank">https://hhav63.com</a>
-			       <a href="https://hhav45.com" target="_blank">https://hhav45.com</a>
-			     <a href="https://hhav48.com" target="_blank">https://hhav48.com</a>
+                            <a href="https://99maohh.com" target="_blank">https://99maohh.com</a>
+                            <a href="https://98maohh.com" target="_blank">https://98maohh.com</a>
+			     <a href="https://97maohh.com" target="_blank">https://97maohh.com</a>
+			       <a href="https://96maohh.com" target="_blank">https://96maohh.com</a>
+			     <a href="https://95maohh.com" target="_blank">https://95maohh.com</a>
                         </li>
                         <li>
                              灰灰av海外永久地址
