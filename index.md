@@ -65,15 +65,7 @@
                     <ul>
                         <li>
                             灰灰av最新地址
-                            <a href="https://100maohh.com" target="_blank">https://100maohh.com</a>
-                        </li>
-                        <li>
-                             灰灰av备用地址
-                            <a href="https://99maohh.com" target="_blank">https://99maohh.com</a>
-                            <a href="https://98maohh.com" target="_blank">https://98maohh.com</a>
-			     <a href="https://97maohh.com" target="_blank">https://97maohh.com</a>
-			       <a href="https://96maohh.com" target="_blank">https://96maohh.com</a>
-			     <a href="https://95maohh.com" target="_blank">https://95maohh.com</a>
+                            <a href="https://100maohh.com" target="_blank">https://95maohh.com</a>
                         </li>
                         <li>
                              灰灰av海外永久地址
